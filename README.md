@@ -1,2 +1,1 @@
-# benneighbour.github.io
-My personal Portfolio/Blog Site
+# Site Coming Soon!
